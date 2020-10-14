@@ -1,1 +1,2 @@
-# pro-26
+//the ingridients are in ingridients.md and the step by step recipe is in the recipe.md ;
+// It thins the chocolate slightly, making it easier to dip the Oreos. 2. It helps the chocolate set much more quickly in the fridge. It's a win/win! We left it optional because there's no reason you'd need to buy coconut oil for a measly couple teaspoons, but if you already have some or would like to buy some, go for it!;

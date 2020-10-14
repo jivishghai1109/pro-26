@@ -1,0 +1,2 @@
+//Line a small baking sheet with parchment paper. In a medium shallow bowl, stir together melted semisweet chocolate and coconut oil if using. Dip each Oreo in the melted chocolate, then place on the parchment lined baking sheet. Place in the refrigerator to set, 10 minutes.;
+//Use a spoon to drizzle white chocolate onto Oreos. Return to the refrigerator to set, 10 minutes longer.;
